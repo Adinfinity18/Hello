@@ -1,6 +1,6 @@
 hello sir 
 i am from fiverr 
-can you coonect with telegram or whatsapp for better conversation 
+can you connect with telegram or whatsapp for better conversation 
 telegram- @Petersmith18 
 whatsapp- +91 9525572767
 
